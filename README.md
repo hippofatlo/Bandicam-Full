@@ -1,0 +1,1 @@
+# Bandicam-Full
